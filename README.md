@@ -5,6 +5,7 @@ The tool to send bulk message on Telegram by multiple accounts
 Contact with me to get the Password of Zip file on :
 
  Telegram : https://t.me/erfan4lx
+ Telegram : https://t.me/hack4lx
  
  Email : erfan4lx@gmail.com
  
