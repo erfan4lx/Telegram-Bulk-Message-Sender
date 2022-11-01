@@ -1,4 +1,6 @@
 # Pro Version Of Telegram Bulk Message Sender Tool
+LATEST VERSION : https://github.com/erfan4lx/Telegram-Mass-DM-Sender/
+
 
 The tool to send bulk message on Telegram by multiple accounts
 
