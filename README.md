@@ -8,7 +8,7 @@ The tool to send bulk message on Telegram by multiple accounts
 
 Contact with me to get the Password of Zip file on :
 
- Telegram : https://t.me/erfan4lx12
+ Telegram : https://t.me/erfan4lx10
  
  Email : erfan4lx@gmail.com
  
@@ -19,7 +19,7 @@ Show demo video on Instagram : https://www.instagram.com/p/CMMuZWdAUrR
 
 🆔My YouTube Channel : https://youtube.com/erfan4lx
 
-🆔My Telegram Channel : https://t.me/erfan4lx_marketing
+🆔My Telegram Channel : https://t.me/erfan4lx_news
 
 🆔My Instagram Page : https://www.instagram.com/_erfan4lx_/
 
